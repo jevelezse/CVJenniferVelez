@@ -1,1 +1,1 @@
-Hoja de vida. 
+Curriculum vitae.
